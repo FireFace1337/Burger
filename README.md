@@ -1,2 +1,2 @@
 # Burger
-Practice
+Why did you come here?
