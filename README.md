@@ -1,2 +1,2 @@
 # Burger
-Why did you come here?
+Better not come here! I am warning!
